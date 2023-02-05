@@ -1,1 +1,0 @@
-# torikizi.github.io
